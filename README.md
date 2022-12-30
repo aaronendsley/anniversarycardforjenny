@@ -1,3 +1,3 @@
-# A 15th Anniversary I made for my Wife
+# A 15th Anniversary Animated Card I made for my Wife
 
 
