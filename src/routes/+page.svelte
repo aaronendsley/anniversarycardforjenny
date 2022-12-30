@@ -40,7 +40,7 @@
 				made. Your a great Mom! Your the best wife ever! Your my favorite Person! I love watching
 				Star Trek, Big Bang Theory, The Office, and all the new movies with you! I love all our
 				jokes. I love growing in Christ with you! You Are my Best Friend and I could not imagine
-				life with out you! Nor would I have only been able to build this page without of all of your
+				life with out you! Nor would I have only been able to build this page without all of your
 				countless hours of patience and grace youve shown me as I've spent hours pouring over
 				Tutorials and books. Your my greatest encourager. I love you! Happy 15th Anniversary!
 			</p>
